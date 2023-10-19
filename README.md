@@ -6,7 +6,7 @@
 - you even accomplish you're stupid little goal because I hate being touched and I throw you to the ground. If you're at home or not near me then simply become
 - Elastigirl it is not that hard. 
 -  わかりますか? Choose one: Yes OR Yes
--  also I understand what these questions are asking I just choose not to answer basically all of them correctly.
+-  also I understand what these questions are asking I just choose not to answer basically all of them correctly oki bye
 
 <!---
 justSk8in/justSk8in is a ✨ special ✨ repository because its `README.md` (this file) appears on my GitHub profile.
